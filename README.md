@@ -1,0 +1,4 @@
+- 👋 Hi,This is @DegreesApart
+- 👀 We create value ...
+- 💞️ I’m looking to collaborate on Digital Currencies, contracts and ledgers
+- 📫 How to reach me : DM me.
